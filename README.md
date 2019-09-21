@@ -1,0 +1,1 @@
+# shortcut-of-the-day
